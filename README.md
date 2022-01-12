@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kamvandwanya7
+- 👋 Hi, I’m Kamva ndwanya
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning how to work with technology
 - 💞️ I’m looking to collaborate on the world of technology
